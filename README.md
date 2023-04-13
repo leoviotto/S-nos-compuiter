@@ -1,0 +1,1 @@
+# S-nos-compuiter
